@@ -1,1 +1,0 @@
-# Sistem-Rekod-transit-PBD-1-Jupiter
